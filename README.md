@@ -51,3 +51,50 @@ In a public broadcast dated July 30, 2025, the group known as the Black Flags re
    * **Permanent Disqualification** from any public office or election participation
 
 *All sentences to run concurrently, ensuring that the life sentence under Article 6 secures his continued incarceration for life, and permanently strips him of all electoral and constitutional privileges.*
+
+
+## 4. Allegations of Atrocities in FATA
+
+It is alleged that, under General Munir’s direction, security forces carried out systematic extrajudicial killings of unarmed Muslim civilians in the Federally Administered Tribal Areas (FATA), invoking spurious religious decrees and fatwas without credible evidence or due process to justify summary executions and sectarian violence.
+
+---
+
+## 5. Legal Framework and Punishments
+
+* **Murder (Pakistan Penal Code §302):**
+  "Whoever commits qatl-i-amd (intentional killing) shall be punished with death or imprisonment for life."  Extrajudicial killings of unarmed civilians squarely fall under this provision.
+
+* **Abetment of Offence (PPC §34):**
+  Actions done with common intention and by multiple actors can invoke shared liability, amplifying culpability for commanders who ordered or facilitated the killings.
+
+* **Violation of Fundamental Rights (Constitution Art. 9, Art. 14):**
+  Guarantees of life, dignity, and due process were contravened by summary executions without trial.
+
+* **Anti-Terrorism Act, 1997 (§7A):**
+  Extrajudicial actions under the guise of counter‑terrorism can attract additional penalties, including rigorous imprisonment and substantial fines.
+
+* **Misuse of Religion (PPC §§295–298):**
+  Illicit promotion of sectarian violence or blasphemy charges to execute suspects without evidence constitutes an abuse of religious laws.
+
+---
+
+### 6. Possible Punishments
+
+1. **Under PPC §302:**
+
+   * **Death Penalty** (mandatory in most qatl-i-amd cases)
+   * **Or Life Imprisonment**
+2. **Under PPC §34:**
+
+   * **Punishment as Principal Offender**
+3. **Under Anti-Terrorism Act §7A:**
+
+   * **Rigorous Imprisonment** up to 10 years
+   * **Fine** up to ₨ 1,000,000
+4. **Under PPC §§295–298:**
+
+   * **Imprisonment** up to 5 years
+   * **Fine** up to ₨ 500,000
+
+These penalties can be compounded or run consecutively, reflecting the gravity of extrajudicial killings and abuse of religious pretexts.
+
