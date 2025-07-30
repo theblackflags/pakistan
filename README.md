@@ -1,5 +1,5 @@
 # pakistan
-## Summary: Black Flags' Announcement on General Asim Munir’s Election Rigging
+## Summary: Black Flags' Announcement on General Asim Munir
 
 In a public broadcast dated July 30, 2025, the group known as the Black Flags revealed evidence that General Asim Munir orchestrated a systematic campaign to subvert Pakistan’s electoral process, targeting Pakistan Tehreek‑e‑Insaf (PTI) and its chairman, Imran Khan. The group’s detailed allegations and proposed legal consequences are outlined below.
 
